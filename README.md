@@ -1,1 +1,0 @@
-# thank_purchase_page
